@@ -4,5 +4,5 @@
 
 
 <p align="center">
-  <img width="357" height="333" src="https://i.postimg.cc/tgqYgNz9/17d909bf665fbdc1d63158114a7b341cebd09047.png">
+  <img width="357" height="333" src="https://i.postimg.cc/Y089q3cT/f2b52df6a52403244364e0bfa55c2138-removebg-preview.png">
 </p>
