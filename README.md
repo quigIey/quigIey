@@ -6,6 +6,6 @@
 <p align="center">
   <img width="357" height="455" src="https://files.catbox.moe/jsdz2u.gif">
  <p align="center">
-𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪
+𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪!!
     <p align="center">
-    & 𝘤+𝘩 𝘪𝘴 𝘰𝘬𝘢𝘺, 𝘫𝘶𝘴𝘵 𝘢𝘴𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘱𝘭𝘦𝘢𝘴𝘦 𝘪𝘧 𝘺𝘰𝘶'𝘥 𝘭𝘪𝘬𝘦 𝘵𝘰! ꒰ᐢ. .ᐢ꒱
+   & 𝘤+𝘩 𝘪𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘰𝘬𝘢𝘺, 𝘫𝘶𝘴𝘵 𝘢𝘴𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘱𝘭𝘦𝘢𝘴𝘦 𝘪𝘧 𝘺𝘰𝘶'𝘥 𝘭𝘪𝘬𝘦 𝘵𝘰! ૮ ˊ͈ . ˋ͈ ა
